@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @AstleC
+- 👀 I’m interested in pursuing new projects :D
+- 🌱 I’m currently learning Java, C# and many more!
+- 📫 How to reach me https://www.linkedin.com/in/astle-cutinha-3ab10b220/
